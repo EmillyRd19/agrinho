@@ -45,4 +45,4 @@ Contrastam com a simplicidade do campo, destacando o desequilíbrio entre rural 
 A paisagem mostra como o campo e a cidade são interdependentes:
 O campo produz, a cidade consome. O agricultor liga esses dois mundos.
 O equilíbrio entre o crescimento urbano e o apoio à agricultura é essencial para um futuro sustentável.
-
+ https://emillyrd19.github.io/agrinho/ acesse aqui, minha paisagem !!!!!!!!!
